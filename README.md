@@ -1,9 +1,4 @@
 # Phone_Book
 
-hi ulmiiiiiiiiiiiiiiiiiii'
-
-semsyyyyyyyyy
-
-fk u
-kumkuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuu
+My first step of creating porjects
 
